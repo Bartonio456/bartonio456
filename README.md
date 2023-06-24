@@ -1,4 +1,4 @@
-### Hi there 👋
+### Bartosz 22872 C6
 
 <!--
 **Bartonio456/bartonio456** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
